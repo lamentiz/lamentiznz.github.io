@@ -1,0 +1,1 @@
+# lamentiznz.github.io
